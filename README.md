@@ -1,3 +1,3 @@
 # KittyPaw
-# Ini test aja
+# Ini test
 # sheila xitkj3
